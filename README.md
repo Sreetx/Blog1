@@ -22,7 +22,7 @@ Halo gaes selamat datang di blog pertama gw, jadi gw mau ngasih kalian kata kata
 18. Orang yang mencintaimu tidak akan membiarkanmu terjerumus kedalam dosa
 19. Untuk apa berpacaran jika niatnya hanya untuk zina tiap hari?
 20. Dunia ini hanya bersifat sementara, jadi janganlah kalian tergoda dengan semua perbuatan yang dapat menimbulkan dosa
-21. Saat kita susah, orang orang akan menjauhi kita. Ketika kita kaya, orang orang akan mendekatimu hanya untuk uang
+21. Saat kita susah, orang orang akan menjauhi kita. Ketika kita kaya, orang orang akan mendekati kita hanya untuk uang
 22. Penampilan bisa menipu
 23. Aku hanya terlalu berharap untuk memilikimu, kenyataannya aku tidak bisa memilikimu
 24. Mereka terlalu pandai menilai orang lain sampai mereka lupa dengan introspeksi diri
