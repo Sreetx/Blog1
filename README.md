@@ -26,6 +26,7 @@ Halo gaes selamat datang di blog pertama gw, jadi gw mau ngasih kalian kata kata
 22. Penampilan bisa menipu
 23. Aku hanya terlalu berharap untuk memilikimu, kenyataannya aku tidak bisa memilikimu
 24. Mereka terlalu pandai menilai orang lain sampai mereka lupa dengan introspeksi diri
+25. Kentut tak berbunyi lebih kejam dari pembunuhan karena dapat menumbulkan sifat saling fitnah memfitnah {:D
 
 OK guys jadi cuman segitu aja ya guys kata kata-nya. Good by sampai ketemu lagi di blog berikutnya
 
